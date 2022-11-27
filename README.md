@@ -1,6 +1,6 @@
 ### Hi there 👋
 I am FriedRiceNoodles~
-- 🔭 I’m currently working on [youniverse](http://www.youniverse.com.cn/).
+- 🔭 I’m currently working in [youniverse](http://www.youniverse.com.cn/).
 - 🍚 My favorite food is fried rice noodles.
 - 📌 Living in Shenzhen, Guangdong.
 - 📫 How to reach me: hjw741@foxmail.com.

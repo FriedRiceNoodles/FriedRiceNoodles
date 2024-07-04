@@ -5,6 +5,11 @@ I am FriedRiceNoodles~
 - 📌 Living in Shenzhen, Guangdong.
 - 📫 How to reach me: hjw741@foxmail.com.
 
+
+![Atri](https://github.com/FriedRiceNoodles/FriedRiceNoodles/assets/53017934/18b1b892-ebbf-45f7-91a4-c4ce6527785e)
+
+
+
 [![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=FriedRiceNoodles)](https://github.com/anuraghazra/github-readme-stats)
 
 <!--

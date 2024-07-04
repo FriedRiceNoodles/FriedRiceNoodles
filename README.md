@@ -6,7 +6,7 @@ I am FriedRiceNoodles~
 - 📫 How to reach me: hjw741@foxmail.com.
 
 
-![Atri](https://github.com/FriedRiceNoodles/FriedRiceNoodles/assets/53017934/18b1b892-ebbf-45f7-91a4-c4ce6527785e)
+![Atri](https://github.com/FriedRiceNoodles/FriedRiceNoodles/assets/53017934/1d59cfa4-86ad-40ab-95af-cb6c6cb2950c)
 
 
 

@@ -5,6 +5,8 @@ I am FriedRiceNoodles~
 - 📌 Living in ~Shenzhen~Guangzhou, Guangdong.
 - 📫 How to reach me: hjw741@foxmail.com.
 
+Visitor Counts: ![:FriedRiceNoodles](https://count.getloli.com/@:FriedRiceNoodles)
+
 
 ![Atri](https://github.com/FriedRiceNoodles/FriedRiceNoodles/assets/53017934/1d59cfa4-86ad-40ab-95af-cb6c6cb2950c)
 
